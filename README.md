@@ -1,0 +1,1 @@
+# DiplomProject_Yandex.Samokat.PavlovaI_Ilona
